@@ -1,1 +1,1 @@
-# Lavina privacy-policy
+# privacy-policy
